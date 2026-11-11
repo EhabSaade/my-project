@@ -1,0 +1,2 @@
+Degree level: Bachelor’s
+
